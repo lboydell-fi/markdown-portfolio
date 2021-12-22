@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Collaborative team player, **love** ❤️ to learn new things and *challenge* ⛰️ myself as often as possible. I first started learning **PowerShell** back 2014 and have been **_HOPELESSLY ADDICTED_** ever since.
